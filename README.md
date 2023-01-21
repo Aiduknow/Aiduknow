@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @Aiduknow
-- 👀 I’m interested in piiiiiiiiiiiiiiink
-- 🌱 I’m currently learning how to use more pink
+
